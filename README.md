@@ -1,5 +1,5 @@
 
-# Hi, I'm Katherine! 👋
+# Hi, I'm Partha! 👋
 
 
 ## 🚀 About Me
